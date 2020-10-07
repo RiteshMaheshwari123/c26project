@@ -1,0 +1,1 @@
+This recipe is a sweet brreakfast food made from egg and bread with milk, cinamin and vanilla extract, seved with syrup, butter , wipped cream or honey
